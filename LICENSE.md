@@ -1,4 +1,4 @@
-# 
+# Enhance GitKraken for PC | GitKraken for Windows with premium GitKraken for PC | GitKraken for Windows Integration | collaboration-tools + conflict-resolution, the #1 integration.
 
 
 
